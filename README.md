@@ -1,2 +1,0 @@
-# SNT1
-gtiogergsghsdf
